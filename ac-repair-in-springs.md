@@ -1,6 +1,6 @@
 # **Did you know that dirty AC coils can cause your unit to work harder and increase your energy bills? Let [Apple Cool AC Service](https://applecoolac.com) in Dubai UAE help you save money by cleaning and maintaining your AC coils, having contact # (054) 3100625.**
 
-![ac repair in spring by apple cool ac](https://applecoolac.com/wp-content/uploads/2022/11/about-img-2.jpg)
+![ac repair in spring by apple cool ac](https://applecoolac.com/wp-content/uploads/2022/11/about-img-1.jpg)
 
 ## Introduction
 Are you aware of the impact that dirty AC coils can have on your energy bills? Did you know that neglecting the maintenance of your AC coils can cause your unit to work harder and consume more energy? Fortunately, Apple Cool AC Service in Dubai UAE is here to help. With their expertise in AC repair and maintenance, they can clean and maintain your AC coils, ensuring optimal performance and energy efficiency. Let's dive deeper into the importance of keeping your AC coils clean and how Apple Cool AC Service can assist you in saving money while keeping your home cool and comfortable.
